@@ -1,6 +1,6 @@
 This project name is "Mastering the Art of Becoming a Beggar: A 7-Day Guide to Loose Everything"
 
-I would be providing a guide to loose everything in 7 days!!
+I would be providing a guide to lose everything in 7 days!!
 
 Amazing ain't it?
 
